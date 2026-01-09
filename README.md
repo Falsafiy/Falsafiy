@@ -150,5 +150,5 @@ product with improved performance and operational efficiency.
 
 ## 📥 Contact
 
-📧 Email: your.email@example.com  
-🌍 LinkedIn: https://www.linkedin.com/in/your-profile
+📧 Email: youncefalsafi@gmail.com  
+🌍 LinkedIn: https://www.linkedin.com/in/younce-falsafi-00144411a/
